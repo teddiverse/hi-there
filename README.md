@@ -1,7 +1,8 @@
 # hi-there
-erhm...
+this is a test lol
+
 literally what even is this lol
 
-i am new to coding, like, extremely new.
+this is very confusing LMAO
 
 my name is teddy, nice to meet you!
